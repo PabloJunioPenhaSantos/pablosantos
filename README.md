@@ -14,9 +14,13 @@
 
 \## meus objetivos
 
-\- Vira sênior em  programação 
+-Vira sênior em  programação 
 
-\- Sonegar impostos  
+- Sonegar impostos  
 
-&nbsp;    
+experiencia : Almoxarife, controle de estoque, conferência, conhecimentos de SAP,MAGIX TI.
+
+-Técnico em telemetria.  Responsável por instalar, programar e dar manutenção em equipamentos embarcados. 
+
+
 
