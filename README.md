@@ -16,7 +16,7 @@
 
 -Vira sênior em  programação 
 
-- Sonegar impostos  
+-Sonegar impostos  
 
 experiencia : Almoxarife, controle de estoque, conferência, conhecimentos de SAP,MAGIX TI.
 
