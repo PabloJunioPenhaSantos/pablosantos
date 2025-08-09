@@ -18,7 +18,7 @@
 
 -Sonegar impostos  
 
-experiencia : Almoxarife, controle de estoque, conferência, conhecimentos de SAP,MAGIX TI.
+-experiencia : Almoxarife, controle de estoque, conferência, conhecimentos de SAP,MAGIX TI.
 
 -Técnico em telemetria.  Responsável por instalar, programar e dar manutenção em equipamentos embarcados. 
 
